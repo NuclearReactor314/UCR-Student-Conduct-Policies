@@ -1,5 +1,4 @@
-# UCR Housing Conduct Policies — What Could Get You in Trouble
-*Quick reference based on the 2025-2026 Housing Resident Conduct Policies, with direct quotes and section numbers*
+# UCR Housing Conduct Policies — Possible Troubles
 
 ##  Serious/High-Stakes Violations
 
